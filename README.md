@@ -1,16 +1,101 @@
-## Hi there 👋
+# *"ѕнιρ αнσу, ѕαιℓσя !"*
 
-<!--
-**PrincipalityofSealand/PrincipalityofSealand** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+<img src="https://github.com/user-attachments/assets/ada0afb4-21f7-497a-b1a9-f023e4150cad" width="100%" />
+<br>
+ ⋅ ‿̩͙⊱༒︎༻　·̩͙།† ͝ ︶ ͝ ⏝ ͝ ︶ ͝ †། ·̩͙　༺༒︎⊰‿̩͙
+</p>
 
-Here are some ideas to get you started:
+<br>
+<p align="center"><img src="https://github.com/user-attachments/assets/64c52d04-d5e2-48a3-9f3a-b49d820763d6"  align="left" width="27%" /></p>
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  
+<tr>
+<td>
+  <br>
+  <br>
+  <br>
+　　
+　　
+  <details>
+    <summary>$\color{#FFFFFF}{\textsf{ㅤㅤㅤㅤㅤ੭﹕﹒　　About me !ㅤㅤㅤㅤㅤ}}$</summary>
+    <br>
+    <div align="center">
+    $${\color{#778db8} ㅤsealand　　or　 　peter.}$$
+    <br>
+      $${\color{#9bb0d8}he / him　;　it / it’s ㅤㅤ}$$
+    <br>
+      $${\color{#778db8}₊ ⊹ㅤ  :bubbles:　‘　minor ,　adults 　iwcaution.}$$
+      <br>
+　　
+    <br>
+  </tr>
+  </td>
+  </div>
+  </details>
+<br>
+<br>
+
+
+  <br>
+　　
+　　
+<p align="center">
+  <br>
+  <img src="https://github.com/user-attachments/assets/8ac99b23-c008-47c9-8702-33b44c9e74c1" width="30%" />
+</p>
+<br>
+　　
+　　
+</p>
+<br>
+<p align="center"><img src="https://github.com/user-attachments/assets/7559824d-8b50-4d05-ab65-cba200f846b1"  align="right" width="27%" /></p>
+
+<br>
+<br>
+　　
+　　
+<p align="right">
+<td>
+<tr>
+
+<h5 align="right">
+  <details>
+<summary>$\color{#FFFFFF}{\textsf{ㅤㅤㅤㅤㅤ DNI LIST and/or BYI! 　.♯┆ㅤㅤㅤㅤㅤ}}$</summary>
+<br>
+    <div align="center">
+    $${\color{#778db8} proshippers - darkshippers! 　,　neon@zi’s . }$$
+    <br>
+      $${\color{#9bb0d8} maga　/　trump　riders ㅤㅤ}$$
+    <br>
+      $${\color{#778db8} slur　spammers ,}$$
+      <br>
+      $${\color{#9bb0d8} people　who　don't　listen ,}$$
+      <br>
+      $${\color{#778db8} iwc　ex-friends ,}$$
+      <br>
+          <a href="https://dni-criteria.carrd.co/" target="_blank">basicdni ‘s</a>
+　　
+    <br>
+  </tr>
+  </td>
+  </div>
+  </details>
+<br>
+  <br>
+　　
+　　
+<p align="center">
+<img src="https://github.com/user-attachments/assets/1399ea14-19ed-49a0-98bf-65367de945e2" width="80%" />
+</p>
+<br>
+<br>
+
+<p align="center">⠀
+ <a href="https://principalitysealand.straw.page/"> <img src="https://github.com/user-attachments/assets/c8557e34-14ce-4392-8434-bb68dc7bc591" alt="sign ata!" width="220"></a>　　　
+<a href="https://discordid.netlify.app/?id=1343098164915474593"> <img src="https://github.com/user-attachments/assets/0ea189c0-70a1-4879-bab8-d69eed19ad21" alt="sign ata!" width="130"></a>　　　
+  <a href="https://sealand.atabook.org/"> <img src="https://github.com/user-attachments/assets/d2c0750c-f2a1-4fa6-a830-e70518a2bed0" alt="sign ata!" width="200"></a> 
+</p>
+</p>
+
