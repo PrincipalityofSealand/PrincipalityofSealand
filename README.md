@@ -106,5 +106,5 @@
 
 
 <p align="center">
-$${\color{#778db8} This　was　mainly　made　by　Arthur!　I　just　did　small　tweakings }$$
+$${\color{#778db8} This　was　made　by　Arthur!　I　just　did　small　tweakings }$$
 
