@@ -75,6 +75,8 @@
       <br>
       $${\color{#778db8} iwc　ex-friends ,}$$
       <br>
+          <a href="https://sealandsdniandbyi.carrd.co/" target="_blank">extendedDNI ‘s</a>
+     <br>
           <a href="https://dni-criteria.carrd.co/" target="_blank">basicdni ‘s</a>
 　　
     <br>
@@ -106,5 +108,5 @@
 
 
 <p align="center">
-$${\color{#778db8} This　was　made　by　Arthur!　I　just　did　small　tweakings }$$
+$${\color{#778db8} Made by Arthur }$$
 
